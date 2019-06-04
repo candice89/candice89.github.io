@@ -1,3 +1,3 @@
-# nailbiter.github.io
+# candice89.github.io
 CV for Candice Tang Lin
-<https://nailbiter.github.io/>
+<https://candice89.github.io/>
